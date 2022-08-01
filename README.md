@@ -2,4 +2,4 @@
 - 💎o mais brabo de todos
 - 👽catolico apostolico
 - 🎈apaixonado por carro
-- 👻bruto
+- 👻BRUTO
