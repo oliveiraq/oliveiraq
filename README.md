@@ -1,4 +1,4 @@
-- 🧸meu user é @andreo0liveira
+- 🧸meu user é [gmeil](andre.deoliveira.silva@escola.pr.gov.br)
 - 💎o mais brabo de todos
 - 👽catolico apostolico
 - 🎈apaixonado por carro
